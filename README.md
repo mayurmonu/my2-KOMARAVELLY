@@ -30,6 +30,19 @@ lot of **beaches** and **quality** time.
 
 >It is not often that idealism of student days finds adequate opportunity for expression in the later life of manhood*~CV Raman*
 
+---
+## Sports
+The below table illustrates sports that i recommend
+
+| Name | Reason | Hours |
+| ---------------|-------------|------------|
+| Badminton | Physical fitness | 2 |
+| Cricket | Concentration and Focus | 6 |
+| Football | Teamwork | 20 |
+| Chess | Improves mind Thinking | 12 |
+
+***
+
 
 
 
