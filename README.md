@@ -23,6 +23,14 @@ lot of **beaches** and **quality** time.
 ---
 [Tap the link](Mystats.md)
 
+***
+
+# CV Raman Quotes:
+>"Treat me right and you will see the light… Treat me wrong and you will be gone!"*~CV Raman*
+
+>It is not often that idealism of student days finds adequate opportunity for expression in the later life of manhood*~CV Raman*
+
+
 
 
 
