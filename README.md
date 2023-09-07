@@ -60,7 +60,7 @@ walk {
 }
 
 ```
-<https://css-tricks.com/snippets/sass/functional-programming-functio>
+<https://css-tricks.com/snippets/sass/functional-programming-functions/>
 
 
 
