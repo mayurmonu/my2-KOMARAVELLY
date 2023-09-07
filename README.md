@@ -20,6 +20,9 @@ lot of **beaches** and **quality** time.
 * Fried green tomatoes with shrimp and remoulade sauce
 * Cubano sandwich 
 
+---
+[Tap the link](Mystats.md)
+
 
 
 
